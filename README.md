@@ -1,0 +1,2 @@
+# premium-figure-paint-001-figure-painting-nmm-techniqu
+Tired of endless trial-and-error with Non-Metallic Metal? Stop wasting expensive paints and hours of frustration—your structured path to NMM mastery starts here.  The Figure Painting &amp; NMM Technique Craft Hub is the only Notion template built specifically to systematize your NMM learning and figure painting projects. It replaces scattered notes and
